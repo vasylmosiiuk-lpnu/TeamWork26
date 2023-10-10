@@ -1,1 +1,1 @@
-Shemberko.Rad.Mykola.Oleksandr
+Shemberko.Panych.Rad.Mykola.Sofiia.Oleksandr
