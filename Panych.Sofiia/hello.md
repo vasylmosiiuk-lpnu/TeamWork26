@@ -1,1 +1,1 @@
-Panych.Sofiia
+Panych.Tsytsyk.Svitlana.Sofiia
