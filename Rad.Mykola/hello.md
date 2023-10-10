@@ -1,1 +1,1 @@
-Rad.Shpytchuk.Vorobets.Anton.Vasyl.Mykola
+Rad.Shpytchuk.Vasyl.Mykola
