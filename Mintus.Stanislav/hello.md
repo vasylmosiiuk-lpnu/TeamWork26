@@ -1,1 +1,1 @@
-Mintus.Khrustalov.Oleksiy.Stanislav
+Mintus.Mykoliv.Khrustalov.Oleksiy.Khrystyna.Stanislav
