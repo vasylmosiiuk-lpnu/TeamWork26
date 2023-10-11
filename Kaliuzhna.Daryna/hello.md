@@ -1,1 +1,1 @@
-Kaliuzhna.Daryna
+Kaliuzhna.Kvyk.Taras.Daryna
