@@ -1,1 +1,1 @@
-Voloshyn.Mintus.Stanislav.Denys
+Voloshyn.Kvyk.Mintus.Stanislav.Taras.Denys
