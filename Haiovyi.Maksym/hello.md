@@ -1,1 +1,1 @@
-Haiovyi.Kardash.Sofia.Maksym
+Haiovyi.Mykoliv.Kardash.Sofia.Khrystyna.Maksym
