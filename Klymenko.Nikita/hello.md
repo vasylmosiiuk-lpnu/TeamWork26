@@ -1,1 +1,1 @@
-Klymenko.Voloshyn.Khrustalov.Oleksiy.Denys.Nikita
+Klymenko.Voloshyn.Khrustalov.Kardash.Sofia.Oleksiy.Denys.Nikita
