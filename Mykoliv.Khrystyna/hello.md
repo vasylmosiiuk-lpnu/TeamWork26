@@ -1,1 +1,1 @@
-Mykoliv.Tsytsyk.Panych.Sofiia.Svitlana.Khrystyna
+Mykoliv.Tsytsyk.Panych.Haiovyi.Maksym.Sofiia.Svitlana.Khrystyna
