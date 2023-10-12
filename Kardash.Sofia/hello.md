@@ -1,1 +1,1 @@
-Kardash.Kaliuzhna.Mintus.Stanislav.Daryna.Sofia
+Kardash.Kaliuzhna.Mintus.Haiovyi.Maksym.Stanislav.Daryna.Sofia
