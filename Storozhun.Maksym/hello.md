@@ -1,1 +1,1 @@
-Storozhun.Kvyk.Klymenkoю.Hymon.Anastasiia.Nikita.Taras.Maksym
+Storozhun.Kvyk.Klymenko.Hymon.Anastasiia.Nikita.Taras.Maksym
