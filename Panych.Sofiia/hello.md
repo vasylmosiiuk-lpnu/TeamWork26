@@ -1,1 +1,1 @@
-Panych.Shemberko.Oleksandr.Sofiia
+Panych.Shemberko.Tsytsyk.Mykoliv.Khrystyna.Svitlana.Oleksandr.Sofiia
