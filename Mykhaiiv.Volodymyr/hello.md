@@ -1,3 +1,2 @@
 
-
-Mykhailiv.Voloshyn.Khrustalov.Hymon.Anastasiia.Oleksiy.Denys.Volodymyr
+Mykhailiv.Voloshyn.Khrustalov.Oleksiy.Denys.Volodymyr
