@@ -1,1 +1,1 @@
-Haiovyi.Mykoliv.Kardash.Klymenko.Nikita.Sofia.Khrystyna.Maksym
+Haiovyi.Mykoliv.Kardash.Klymenko.Yatsev.Olena.Nikita.Sofia.Khrystyna.Maksym
